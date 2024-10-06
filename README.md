@@ -2,7 +2,7 @@
 - 👀 I’m interested in computers and crypto
 - 🌱 I’m currently learning to behave
 - 💞️ I’m looking to collaborate on a winner project 
-- 📫 How to reach me simonjh2009@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
